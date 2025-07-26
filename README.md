@@ -84,4 +84,4 @@ Contributions are welcome! Feel free to fork the repo, submit pull requests, or 
 
 **Uday Kiran**  
 📧 [Email](mailto:udaypagidimari@gmail.com)  
-🔗 [GitHub](https://https://www.linkedin.com/in/udaykiran-pagidimari-30275725a)
+🔗 [linkdin](https://www.linkedin.com/in/udaykiran-pagidimari-30275725a)
